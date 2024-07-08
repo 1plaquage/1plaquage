@@ -1,0 +1,3 @@
+- 👋 Salut, moi c'est 1plaquage.
+- 👀 J'aime bien faire des vidéos sur Youtube.
+- 💞️ J'aimerais bien apprendre à faire mon site web.
